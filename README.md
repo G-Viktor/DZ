@@ -1,1 +1,1 @@
-# DZ
+Diplom
